@@ -1,1 +1,1 @@
-# caseneurex.github.io
+# caseneurex.com
